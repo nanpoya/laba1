@@ -1,0 +1,1 @@
+kod for laba1
